@@ -8,8 +8,8 @@ This is me who likes chickens goats and horses
 
 ### More Information
 
-A place to include any other types of information that you'd like to include about yourself.
+I bread heritage chickens and enjoy data science  
 
 ### Contact me
 
-[email@domain.com](mailto:email@domain.com)
+[c.hagemann@hotmail.com](mailto:c.hagemann@hotmail.com)
